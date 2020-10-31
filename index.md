@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## I TOOK A RASH OF SHIT FOR TWO YEARS, BUT I KNEW I WAS RIGHT.
 
 You can use the [editor on GitHub](https://github.com/greyh0und3/greyh0und3.GitHub.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
